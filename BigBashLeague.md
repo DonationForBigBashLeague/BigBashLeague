@@ -3,7 +3,7 @@ BigBashLeague
 
 Donatain For Big Bash League Is Avaible Now!
 
-Donation USD/MYR/Frost Buck(Choose One Of The Donation)
+Donation USD/MYR/Frost Buck
 =====================
 
 The Normal Donation = $5 / MYR 5.00 / 5 Buck
@@ -35,4 +35,17 @@ Donation Rank Giver
 ===================
 
 PM Us On http://frost.psim.us/thebigbashleague if u wan to do a donation
+
+Contact One Of Us
+=================
+
+1.IndianCharizard#
+
+2.Legendary Draco 
+
+3.AnriN David Ryan
+
+4.Champion Plasma
+
+5.Shadow Dark 6
 
