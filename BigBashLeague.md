@@ -3,7 +3,7 @@ BigBashLeague
 
 Donatain For Big Bash League Is Avaible Now!
 
-Donation USD/MYR/Frost Buck(Any Amount)
+Donation USD/MYR/Frost Buck(Choose One Of The Donation)
 =====================
 
 The Normal Donation = $5 / MYR 5.00 / 5 Buck
