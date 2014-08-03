@@ -37,13 +37,13 @@ Contact One Of Us
 
 1.IndianCharizard# - Ic880496@gmail.com
 
-2.Legendary Draco - kokjiaxuan123@gmail.com / kokjiaxuan@yahoo.com
+2.Legendary Draco - kokjiaxuan123@gmail.com
 
 3.AnriN David Ryan - anrin11@gmail.com
 
 4.Champion Plasma - Unknow
 
-5.Shadow Dark 6 - Unknow
+5.Shadow Dark 6 - clarkj338@gmail.com
 
 6.Kakashi/Ansirent - ansirenterdude@gmail.com
 
