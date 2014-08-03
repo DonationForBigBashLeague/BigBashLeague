@@ -32,10 +32,6 @@ Donation Rank Giver
 
 ($35/MYR 35.00/35 Bucks - More) = Owner Auth
 
-===================
-
-PM Us On http://frost.psim.us/thebigbashleague if u wan to do a donation
-
 Contact One Of Us
 =================
 
@@ -43,7 +39,7 @@ Contact One Of Us
 
 2.Legendary Draco - kokjiaxuan123@gmail.com / kokjiaxuan@yahoo.com
 
-3.AnriN David Ryan - Unknow
+3.AnriN David Ryan - anrin11@gmail.com
 
 4.Champion Plasma - Unknow
 
