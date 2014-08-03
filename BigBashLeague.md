@@ -1,7 +1,7 @@
 BigBashLeague
 =============
 
-Donatain For Big Bash League Is Avaible Now!Make A Donation To Our League Grow Up
+Donatain For Big Bash League Is Avaible Now!Make A Donation For Our League To Grow Up
 
 Donation USD/MYR/Frost Buck
 =====================
