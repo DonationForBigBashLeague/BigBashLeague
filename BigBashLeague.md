@@ -1,7 +1,7 @@
 BigBashLeague
 =============
 
-Donatain For Big Bash League Is Avaible Now!
+Donatain For Big Bash League Is Avaible Now!Make A Donation To Our League Grow Up
 
 Donation USD/MYR/Frost Buck
 =====================
@@ -39,13 +39,14 @@ PM Us On http://frost.psim.us/thebigbashleague if u wan to do a donation
 Contact One Of Us
 =================
 
-1.IndianCharizard#
+1.IndianCharizard# - Ic880496@gmail.com
 
-2.Legendary Draco 
+2.Legendary Draco - kokjiaxuan123@gmail.com / kokjiaxuan@yahoo.com
 
-3.AnriN David Ryan
+3.AnriN David Ryan - Unknow
 
-4.Champion Plasma
+4.Champion Plasma - Unknow
 
-5.Shadow Dark 6
+5.Shadow Dark 6 - Unknow
 
+You Guy Can Also Contact Us On Frost(http://frost.psim.us/thebigbashleague)
