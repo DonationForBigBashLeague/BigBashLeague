@@ -39,7 +39,7 @@ Contact One Of Us
 
 2.Legendary Draco - kokjiaxuan123@gmail.com
 
-3.AnriN David Ryan - anrin11@gmail.com
+3.AnriN David Ryan/Anrin Das - anrin11@gmail.com
 
 4.Champion Plasma - Unknow
 
